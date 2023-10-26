@@ -10,3 +10,6 @@ Meu nome é Emanuele souza pereira
 ### Você pode entrar em contato comigo 📫
 
 emanuele.souza.pereira@escola.pr.gov.br
+
+
+![](https://media.tenor.com/PjqADprSKQ8AAAAC/roblox-mom.gif)
